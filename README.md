@@ -1,0 +1,1 @@
+O BI de NPS nos permite monitorar e acompanhar as classificações dos clientes, identificar tendências e padrões, e compreender melhor o que está impulsionando suas respostas. Podemos segmentar os clientes por categorias, como detratores, passivos e promotores, e explorar as razões por trás de suas avaliações.
